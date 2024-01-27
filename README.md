@@ -1,1 +1,1 @@
-   Sistem Analizi Ve Tasarımı Proje Ödevi
+   Sistem Analizi VE Tasarımı Proje Ödevi
